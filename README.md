@@ -291,6 +291,6 @@ She is not a villain.
 
 She is a pressure point.
 
-Where desire, power, and weakness intersect—
+Where desire, power, and weakness intersect--
 
 She appears.
