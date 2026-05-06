@@ -262,7 +262,7 @@ To her, bureaucracy is a parody of hierarchy:
 - Authority without dominance  
 - Structure without strength  
 
-And yet—
+And yet...
 
 Even she is not beyond its reach.
 
